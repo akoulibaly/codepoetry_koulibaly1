@@ -10,5 +10,5 @@ Mere anarchy is loosed upon the world,
 
 The blood-dimmed tide is loosed, and everywhere
 
-TAKE THIS LINE OUT
+The ceremony of innocence is drowned;
 
